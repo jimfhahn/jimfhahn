@@ -1,3 +1,3 @@
 ### 
 
-- 🔭 PhD student at the University of Illinois iSchool.
+- 🔭 PhD candidate at the University of Illinois iSchool.
